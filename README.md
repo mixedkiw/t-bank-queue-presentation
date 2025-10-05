@@ -1,0 +1,3 @@
+Here are variants of the presentation for the presentation of the executed project...
+
+...why do you even read it?
